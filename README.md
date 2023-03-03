@@ -1,4 +1,4 @@
-# Follow the white rabbit Trustpilot challenge
+# Follow The White Rabbit - Trustpilot Challenge
 
 You've made an important decision. Now, let's get to the matter.
 
